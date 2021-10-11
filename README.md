@@ -10,7 +10,7 @@
 **Best known for** : ***Super fast learner and Highly motivated***
 
 
-I love to code and digital fabricating looking to make various ,challenging and new projects to elevate my skills to another level believing in The greatest success comes from the freedom to ~~fail ~~
+I love to code and digital fabricating looking to make various ,challenging and new projects to elevate my skills to another level believing in The greatest success comes from the freedom to ~~fail 
 
 
 - 👨‍💻 **Also, I’m working on**: Embedded system software Engineer.
