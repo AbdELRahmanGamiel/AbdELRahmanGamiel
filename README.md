@@ -1,4 +1,4 @@
-### Hello there, I'm ABdELRahman Gamiel ! 👋
+### Hello there, I'm AbdELRahman Gamiel ! 👋
 <img align='right' src="https://c.tenor.com/3TwmcJ-ffa0AAAAC/netero-heart.gif" width="350">
 
 
